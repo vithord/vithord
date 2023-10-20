@@ -1,6 +1,6 @@
 ## Olar... 👋
 
-Me chamo ```Vitor``` e formei na Etec JRM em informática para a internet (desenvolvimento web), e to por aí fazendo uns negócio,por mais inativo que eu seja
+Me chamo ```Vitor``` e formei na Etec JRM em informática para a internet (desenvolvimento web), e to por aí fazendo uns negócio, por mais inativo que eu seja
 
 Não há muito o que dizer nem o que mostrar... só queria deixar isso aqui 'bonitinho' mesmo (de alguma forma)
 
